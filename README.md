@@ -45,7 +45,7 @@ checkboxes
 links:
 [google](https:google.com)
 
-![gyal](https://upload.)
+
 ![christina-wocintechchat-com-NMYnjJNviO4-unsplash](https://user-images.githubusercontent.com/79047179/129035855-d6592258-e1f3-4de6-b309-6a42b04e8734.jpg)
 
 
